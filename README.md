@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning it :D
 - 💞️ I’m looking to collaborate on this Projects
 - 🔗 How to reach me:
-    1. Twitter: @RedReymo
+    1. Twitter: @ReymoRed
     2. Telegram: @ReymoRed
     3. Instagram: @ReymoRed
 
